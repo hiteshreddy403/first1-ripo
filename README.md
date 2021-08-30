@@ -1,3 +1,2 @@
-
 # first1-ripo
-what is the purpose of the repo
+my name is hitesh and i cant live without food 
